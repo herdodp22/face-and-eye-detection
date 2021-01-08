@@ -11,3 +11,4 @@ jangan lupa follow instagram saya : herdodp
 mayan kan nambah followers. tp bukan berarti gak ada keuntungan memfollow saya. ada kok, misalnya......
 eh iya, gak ada deng.. haha..
 sekian dari saya, dan , terima kasih :D
+jajajaja
